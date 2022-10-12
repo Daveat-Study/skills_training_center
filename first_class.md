@@ -1,3 +1,13 @@
+Wednesday 12th October 2022
+
+##### Subject 7:
+I, You, We, They, He, She, It
+
+##### Verb to be 3:
+am, is, are
+
+<center>Vocabulary</center>
+
 Thuesday 11th October 2022
 
 <center>Vocabulary</center>
