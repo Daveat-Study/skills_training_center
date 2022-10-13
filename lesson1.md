@@ -1,3 +1,14 @@
+Thursday 13th October 2022
+
+Cham Srey nit, 
+Surname: Cham
+Old: 19 years old.
+Called u: Srey nit.
+From: Kompong cham province
+What u do? I am a student 
+
+------------------------------
+
 Wednesday 12th October 2022
 
 ##### Subject 7:
