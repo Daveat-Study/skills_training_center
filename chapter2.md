@@ -1,16 +1,17 @@
+Chpater 2: 
 Vocabulary:
 
 - Castle: khas sol
 
 B. Use there + be to say what we can and cannot find in the town of Smallwood.
 	1 There isn't a castle.
-	2. There are two baker's shops.
-	3. There is zoom.
-	4. There are six banks.
-	5. There is a luxury hotel.
-	6. There isn't a theatre.
-	7. There are six newsagents.
-	8. There aren't many tourist.
+	1. There are two baker's shops.
+	2. There is zoom.
+	3. There are six banks.
+	4. There is a luxury hotel.
+	5. There isn't a theatre.
+	6. There are six newsagents.
+	7. There aren't many tourist.
 
 C. Write questions by putting the words in bracket() in the correct order.
 	1. You are a teacher.
