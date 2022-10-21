@@ -1,3 +1,31 @@
+Date Thursday 21th October 2022 - 5:30-6:30 pm
+
+Shapes name in english.
+
+- Arrow 
+- Cross
+- Crescent/Moon
+- Heart
+  
+- Ovel អូវល
+- Square
+- Cube
+ 
+- Diamond
+- Triangle
+- Right
+- Pentagon 5
+- Octagon 8
+- Hexagon 6
+- Hepagon 7
+- Nonagon នរណាgon 9
+- Rectangle
+
+- Star
+- Circle
+
+-----------------------------
+
 Thursday 13th October 2022
 
 Cham Srey nit, 
