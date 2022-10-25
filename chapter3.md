@@ -27,7 +27,6 @@ Do/Does + S + V1 ... ?
 
 Date Thursday 20th October 2022 - 6:30-7:30 pm
 
-d
 - Can
 
 May or Can use for:
@@ -48,9 +47,11 @@ if a verb ends
 
 1. Now look at these examples of the negative.
 
-* Form: Subject + do/does(កិរិយាសព្ទជំនួយ, or ocsilary verb) + verb1 + obj:
+* Form: Subject + do/does(កិរិយាសព្ទជំនួយ, or Auxiliary verb) + verb1 + obj:
 => Example: 
 	- I do not know.
 
 * Why we don't use object with above sentence? 
 => Because it's already make sense.
+
+* Form: Subject + don't/doesn't (កិរិយាសព្ទជំនួយ, or Auxiliary verb) 
