@@ -1,3 +1,18 @@
+Date Thursday 25th October 2022 - 5:30-6:30 pm
+
+Page: 10 - Daily Routines
+
+1. Make my bed.
+2. brush my teeth and shave.
+3. take a shower and get dress for to school.
+4. walk to school.
+5. Exercises.
+6. cook.
+7. take a trash.
+8. go to bed.
+
+---------------------------------------
+
 Date Thursday 21th October 2022 - 5:30-6:30 pm
 
 Shapes name in english.
